@@ -1,0 +1,1 @@
+# Analise_SNIF_FocosdeCalor
